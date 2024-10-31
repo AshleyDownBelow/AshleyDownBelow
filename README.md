@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AshleyDownBelow
-- 👀 I’m interested in trumpet, vidjagames & snowboarding!!
+- 👀 I like trumpet, vidjagames & snowboarding!!
 - 📫 How to reach me - Discord on kwh5, if you *really* have to.
 - 😄 Pronouns: She/Her!!
 - ⚡ Fun fact: sometimes the voices tell me to do bad things and it won't be much longer before I listen
